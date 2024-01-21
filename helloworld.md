@@ -1,4 +1,4 @@
-## Hello! Vedro!
+## Hello! Vedo!
 
 Lallaa
 
