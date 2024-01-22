@@ -1,6 +1,6 @@
 ## Hello! Vedo!
 
-Lallaa
+Lallaa, smortrim za zhizoiq'
 
 Absolutely
 eto prosto fanstksiata
