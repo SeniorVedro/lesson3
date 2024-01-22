@@ -1,4 +1,4 @@
-## Hello! Vedo!
+## Hello! Vdo!
 
 Lallaa, smortrim za zhizoiq'
 
