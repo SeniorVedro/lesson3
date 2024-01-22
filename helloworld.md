@@ -7,4 +7,4 @@ eto prosto fanstksiata
 
 muchas gracias, seniorita
 
-pizdos conflicos, moi pes
+pizdos conflicos, moi pes govnosos
